@@ -1,4 +1,6 @@
-### Hi there 👋
+### Heya! 👋
+
+- Welcome to my new account, it's not my first. I lost my first account (xDD)
 
 <!--
 **YahyaEmre/YahyaEmre** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
